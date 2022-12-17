@@ -1,1 +1,1 @@
-# svetllana1997-rsschool-cv-html
+https://svetllana1997.github.io/rsschool-cv/
